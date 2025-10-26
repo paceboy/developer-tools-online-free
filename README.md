@@ -5,4 +5,4 @@ Images:
 
 [view multiple images online](https://www.view-multiple-images.com/)
 
-[text generat image free](https://www.raphael.app/)
+[text generate image free](https://www.raphael.app/)
